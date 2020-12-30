@@ -4,4 +4,4 @@
 
 [youtube](https://www.youtube.com/playlist?list=PLkm1R0mVrZcI5N2ApXlrdyTe6PhshUpwg)
 
-[bilibili](https://www.bilibili.com/video/BV1mp4y167fC/)
+[bilibili](https://space.bilibili.com/631309507)
